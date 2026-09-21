@@ -1,0 +1,2 @@
+# CRIPTO
+contraseña certificados:hankomejorquecubarsi
